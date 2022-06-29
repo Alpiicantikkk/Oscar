@@ -218,7 +218,7 @@ Semua yang selalu mendukung
 [![aniq12](https://github.com/aniq12.png?size=100)](https://github.com/aniq12)
 [![amiruldev20](https://github.com/amiruldev20.png?size=100)](https://github.com/amiruldev20)
 [![Chacax](https://github.com/Chacax.png?size=100)](https://github.com/Chacax)
-[![rahmad13](https://github.com/rahmad13.png?size=100)](https://github.com/rahmad13)
+[![Jarot](https://github.com/Alpiicantikkk.png?size=100)](https://github.com/Alpiicantikkk)
 
 
 Best Regards. Aine-MD
